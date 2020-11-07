@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 💬 Hate quitting 
 - 📫 Reach me via [LinkedIn](https://www.linkedin.com/in/narendranaskiddypotter/)
 - 😄 Pronouns: call me **kiddy**
+- 😄 Protfolio: www.narendrans.live
 - ⚡ Fun fact: Don't Try 😅
