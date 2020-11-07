@@ -1,5 +1,5 @@
 Hi there 👋
-This is Narendran S ✨ .
+This is **Narendran S** ✨ .
 
 Here are some ideas to get you started:
 
